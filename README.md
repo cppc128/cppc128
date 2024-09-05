@@ -1,4 +1,4 @@
-🤝 Hi, I’m @cppc128 and some facts about me:
+🤝 Hi, my name is Dawid and here are some facts about me:
 - 🇵🇱 my home
 - 🇬🇧 🇩🇪 my foreign languages
 - 🇷🇺 want to learn 3rd foreign language
